@@ -1,6 +1,6 @@
 # Dimensionlink
 
-![alt text](https://github.com/Norieq/Dimensionlink/blob/main/Title+Image.jpg?raw=true)
+![alt text](https://raw.githubusercontent.com/Norieq/Dimensionlink/db920f98b379df11fd5534b905f994369546aab1/Title%20image.jpg)
 
 An osu! skin inspired by Miraie as the musical artist and Sei as the Artwork maker.
 
