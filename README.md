@@ -8,6 +8,6 @@ Long story short, I got this Idea after hearing the song "facade" ("facade" was 
 
 Miraie is now a Musical artist. He make less video and make more music. Many people likes Miraie and many people hates Miraie. But in the end, we all just seeing at one side of things. We don't look the full perspective. Even one of my friend saying that Miraie suck. And I didn't mad at him. I didn't do anything. it's their decision to hate something. not us.
 
-In the end I just wanna say, We love you. Norieu.
+end.
 
 Ps: If you hate me, it's your choice I can't make you like me. I'm a just a human having a dream of being in someone's body cause my life sucks. Peace.
