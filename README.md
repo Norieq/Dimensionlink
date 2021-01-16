@@ -1,5 +1,7 @@
 # Dimensionlink
 
+![alt text](https://github.com/Norieq/Dimensionlink/blob/main/Title+Image.jpg?raw=true)
+
 An osu! skin inspired by Miraie as the musical artist and Sei as the Artwork maker.
 
 Long story short, I got this Idea after hearing the song "facade" ("facade" was the name that I'm gonna use for the skin but I changed it) I got pointed by Sei's artwork. The artstyle is amazing giving the limited color pallete a new life in my eyes. Just gonna be real, A lot of people doesn't like Miraie Seeing the "childish" things he do on the internet, or maybe people just don't understand the art that he's making or the story of Miraie's life.
